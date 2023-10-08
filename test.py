@@ -1,1 +1,1 @@
-imo	i
+fasdimo	i
